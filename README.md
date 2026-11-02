@@ -11,7 +11,7 @@
 
 ## 📸 Screenshots
 
-> _Coming soon_
+> https://drive.google.com/file/d/1_VQDMSvnl1boL3FFQjh8bDZpjOLC5mCQ/view?usp=drive_link
 
 ---
 
